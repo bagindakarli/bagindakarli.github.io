@@ -1,1 +1,0 @@
-# bagindakarli.github.io
